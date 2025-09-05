@@ -4,4 +4,4 @@ Im a student in the IT Infrastructure Bachelor of Applied Science Degree at the 
 
 i am interested in network engineering and managing.
 
-How to reach me: 
+How to reach me: szuhaib2004@gmail.com
